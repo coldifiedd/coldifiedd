@@ -1,16 +1,13 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![1000009708](https://github.com/user-attachments/assets/9968d52d-59a8-43a7-b874-5c15426abb60)
+ㅤㅤㅤㅤㅤㅤㅤㅤ![1000009864](https://github.com/user-attachments/assets/d44aaa42-03f1-4dc7-b670-605733178af5)$${\color{#cca87b}\text{ 𝘁𝖺𝘬e𝘯ㅤ ♡}}$$ ![1000009854](https://github.com/user-attachments/assets/605ca080-b1ad-40e5-bd11-b157f4347ac5)
 
 
+$${\color{#E5989B}\text{3𝘁𝘦𝖾𝗇ㅤ✧ㅤ𝙗𝘳𝘢𝗇𝖽𝘰𝗇 𝖺𝘯𝙙 𝙖𝘶𝖻𝘳𝖾𝘦𓈒 𝗄𝘪n }}$$
 
-$${\color{#FFCDB2}\text{𝗿𝗂ᴄh 𝐨𝕣 𝗻𝕪𝘦𝐧 𖹭  }}$$
-$${\color{#FFB4A2}\text{𝐠𝕚𝘃𝖾 𝗆𝗲 𝕝𝐨ᴠe m𝐲 𝗱𝖺ʀ𝕝𝐢𝚗g  ۫ ׅ }}$$
+$${\color{#E5989B}\text{}}$$
 
-![1000009629](https://github.com/user-attachments/assets/c5957a96-2ff2-4320-bb00-f87689afde3c)
+![1000009635](https://github.com/user-attachments/assets/69aa5e70-8381-456b-bf9b-dab46f3fd047)
 
 
-$${\color{#E5989B}\text{3𝐭𝕖𝗲𝗇ㅤ✧ㅤ 𝗮𝗎𝕓𝐫𝚎e 𝗸𝚒𝐧n𝗂𝕖ׅ ♡𓈒 }}$$
-$${\color{#B5838D}\text{𝕚 𝐰a𝗻𝗇𝒂 𝘁𝘰𝕦c𝒉 𝗌𝗼𝑚𝐞𝕙o𝚠 𝐰𝖺𝘆}}$$
-$${\color{#6D6875}\text{𝐟𝕠𝗹𝗅𝐨w 𝒉𝖾E }}$$
 
 ㅤㅤㅤㅤㅤㅤㅤ♡ [@manepaws](https://github.com/manepaws) 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[@QueerbaitTrio](https://github.com/QueerbaitTrio) ㅤㅤ![1000009706](https://github.com/user-attachments/assets/7c4265b0-d9e2-42c7-8d18-18a6e6b448a4)
